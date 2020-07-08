@@ -10,7 +10,7 @@
 
 
 
-#### Get in touch : abaskabato@gmail.com
+#### <span>&#9993;</span> : abaskabato@gmail.com
 
 
 
