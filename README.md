@@ -5,8 +5,7 @@
 
 ## White Papers
 
-## Contact
- # abaskabato@gmail.com
+## Get in touch : abaskabato@gmail.com
 
 
 
