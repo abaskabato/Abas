@@ -1,9 +1,9 @@
 
-### [Linkedin](https://www.linkedin.com/in/abas-kabato/)
+## [Linkedin](https://www.linkedin.com/in/abas-kabato/)
 
-### Resume
+## Resume
 
-### White Papers
+## White Papers
 
 
 
