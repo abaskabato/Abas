@@ -4,7 +4,7 @@
 
 ## [Resume](https://github.com/abaskabato/Resume/blob/master/Abas%20_Kabato.pdf)
 
-## White Papers
+## [White Papers](https://github.com/abaskabato/White-Papers/blob/master/Coming%20Soon.txt)
 
 
 
