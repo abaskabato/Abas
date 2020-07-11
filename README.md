@@ -2,7 +2,7 @@
 
 ## [Linkedin](https://www.linkedin.com/in/abas-kabato/)
 
-## Resume
+## [Resume](https://github.com/abaskabato/Resume/blob/master/Abas%20_Kabato.pdf)
 
 ## White Papers
 
