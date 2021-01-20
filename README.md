@@ -1,10 +1,9 @@
-## [Projects](https://github.com/abaskabato?tab=repositories) 
-
+## [About Me]( https://github.com/abaskabato/About-Me/blob/main/Abas%20Kabato%20Portfolio.pdf )
 ## [Linkedin](https://www.linkedin.com/in/abas-kabato/)
-
 ## [Resume](https://github.com/abaskabato/Resume/blob/master/Abas%20_Kabato.pdf)
 
-## [White Papers](https://github.com/abaskabato/White-Papers/blob/master/Coming%20Soon.txt)
+
+
 
 
 
