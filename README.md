@@ -1,6 +1,6 @@
 ## [About Me]( http://tiny.cc/7hj8tz)
 ## [Linkedin](https://www.linkedin.com/in/abas-kabato/)
-## [Resume](https://github.com/abaskabato/Resume/blob/master/Abas%20_Kabato.pdf)
+## [Request Resume](✉:abaskabato@gmail.com)
 
 
 
