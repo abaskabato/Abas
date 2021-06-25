@@ -1,4 +1,4 @@
-Hi 👋, My name is Abas. I am a tinkerer based in Seattle, Washington. I am also certified coffee drinker. 
+Hi 👋, My name is Abas. I am a techie tinkerer based in Seattle, Washington. Currently working with Amazon Operations Technology Team and Consulting with City of Seattle Digital HelpDesk.  I am also certified  Coffee☕ drinker and Taco🌮 eater.
 
 ## [About Me]( http://tiny.cc/7hj8tz)
 ## [Linkedin](https://www.linkedin.com/in/abas-kabato/)
