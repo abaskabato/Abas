@@ -1,4 +1,4 @@
-
+Hi 👋, My name is Abas. I am a tinkerer based in Seattle, Washington. I am also certified coffee drinker. 
 
 ## [About Me]( http://tiny.cc/7hj8tz)
 ## [Linkedin](https://www.linkedin.com/in/abas-kabato/)
